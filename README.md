@@ -1,0 +1,1 @@
+# min7ix.github.io
